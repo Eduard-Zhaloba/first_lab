@@ -1,1 +1,1 @@
-I am programmer IT
+programmer IT
